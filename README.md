@@ -1,1 +1,1 @@
-Elegant, Modern and Very Cool.
+Grife Theme
